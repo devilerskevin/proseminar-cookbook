@@ -16,7 +16,8 @@
 - Pepper
 ## Omelette
 - 3 eggs
-- 30g grated cheddar cheese
+- 50g Gruyere
 - 15ml milk
 - Salt & Pepper to taste
 - 1 tsp Butter
+- 1 Onion
