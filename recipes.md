@@ -15,7 +15,8 @@
 - Pasta Water
 - Pepper
 ## Omelette
-- 2 eggs
+- 3 eggs
 - 30g grated cheddar cheese
 - 15ml milk
 - Salt & Pepper to taste
+- 1 tsp Butter
