@@ -21,3 +21,9 @@
 - Salt & Pepper to taste
 - 1 tsp Butter
 - 1 Onion
+## Tiramisu
+- 250g Mascarpone
+- 3 Eggs
+- 200g Ladyfingers
+- 2 cups Espresso
+- Cocoa powder for dusting
