@@ -7,3 +7,8 @@
 295ml milk
 1large egg
 70g Butter
+##Omlette
+2 eggs
+30g grated cheddar cheese
+15ml milk
+Salt & Pepper to taste
