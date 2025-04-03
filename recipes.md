@@ -7,3 +7,10 @@
 295ml milk
 1large egg
 70g Butter
+##Carbonara
+100g Spaghetti
+3 Eggs
+100g Guancale
+100g Peccorino Romano
+Pasta Water
+Pepper
